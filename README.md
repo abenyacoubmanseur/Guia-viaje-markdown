@@ -1,5 +1,5 @@
 # Guia de viaje a Algeria
-Argelia es un país situado en el norte de África, conocido por sus paisajes, sus ciudades históricas, sus playas y el desierto del Sáhara. 
+Argelia es un país situado en el norte de África, conocido por sus paisajes, sus ciudades históricas, sus playas y el desierto del Sáhara.   
 ![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQh8iirVIVYKPT1eD8u6yoOJ4uZ5KvgVItoYaV5Iaq9ZQ&s=10)   
 ## Lugares de interes
 * Basilique Notre Dame d'Afrique
